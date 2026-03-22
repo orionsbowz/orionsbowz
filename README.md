@@ -4,7 +4,7 @@
 <br><br>
 <div align="left">
 <pre>
-𑣲 All my ponies are C+H // If i dont respond it's only because offtab just whisper
+𑣲 All my ponies are C+H // If i dont respond it's only because offtab, just whisper
      me!! 
 𑣲 Main fandoms ; TSHD // CRK // Hetalia // Roblox YTers // Sanrio // ASV // K-On //
      PJSK // 
@@ -15,4 +15,9 @@
 <br>
 <div align="center">
 <img src="https://64.media.tumblr.com/b013573d971e48f84bb2cffb11790c21/4da5a88dd9fc5a9a-88/s500x750/c13ffe3e0589ced2bf0474240f22901d09a33f54.webp" height="150" />
+     <div align="left">
+<pre>
+𑣲 DNI: Proship-Darkship-Comship // Pro-Loli/shotas // THOSE religious people... // SH/EDtwt //
+𑣲 INT: Legit anyone that isnt on my DNI, as long as you aren't a weird i'll be more than happy to talk with you!
+</pre>
 <br><br>
