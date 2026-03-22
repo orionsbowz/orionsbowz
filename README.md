@@ -10,14 +10,14 @@
      PJSK // 
 𑣲 Artist! My user is delphinusorb on everything!
 𑣲 If you do not like any of my ponies, feel free to hide//block me!
-𑣲 Taken // 18!
+𑣲 Taken // 18! || Pan/Genderfluid 
 </pre>
 <br>
 <div align="center">
 <img src="https://64.media.tumblr.com/b013573d971e48f84bb2cffb11790c21/4da5a88dd9fc5a9a-88/s500x750/c13ffe3e0589ced2bf0474240f22901d09a33f54.webp" height="150" />
      <div align="left">
 <pre>
-𑣲 DNI: Proship-Darkship-Comship // Pro-Loli/shotas // THOSE religious people... // SH/EDtwt //
+𑣲 DNI: Proship-Darkship-Comship // Pro-Loli/shotas // THOSE religious people... // SH/EDtwt // super weird fujoshis/himejoshis
 𑣲 INT: Legit anyone that isnt on my DNI, as long as you aren't a weird i'll be more than happy to talk with you!
 </pre>
 <br><br>
