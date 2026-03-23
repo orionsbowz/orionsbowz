@@ -8,8 +8,8 @@
 <pre>
 𑣲 All my ponies are C+H // If i dont respond it's only because offtab, just whisper
      me!! 
-𑣲 Main fandoms ; TSHD // CRK // Hetalia // Roblox YTers // Sanrio // ASV // K-On //
-     PJSK // 
+𑣲 Main fandoms ; TSHD // CRK // Hetalia // Roblox YTers // Sanrio // DoL // K-On //
+     PJSK // ARGs+Online Horror Series
 𑣲 Artist! My user is delphinusorb on everything!
 𑣲 If you do not like any of my ponies, feel free to hide//block me!
 𑣲 Taken // 18! || Pan/Genderfluid 
