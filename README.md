@@ -15,7 +15,7 @@
 𑣲 Taken // 18! || Pan/Genderfluid 
 𑣲 DNI: Proship-Darkship-Comship // Pro-Loli/shotas // THOSE religious people... // 
      SH/EDtwt // super weird fujoshis/himejoshis
-𑣲 INT: Legit anyone that isnt on my DNI, as long as you aren't a weird 
+𑣲 INT: Legit anyone that isnt on my DNI, as long as you aren't a weirdo 
      i'll be more than happy to talk with you!
 </pre>
 <br><br>
