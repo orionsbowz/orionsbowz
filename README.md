@@ -11,8 +11,6 @@
 <pre>
 𑣲 All my ponies are C+H // If i dont respond it's only because offtab, just whisper
      me!! 
-𑣲 I do 5-10 laps as Jesus every other hour when online, unless I'm with friends <3! // 
-     Feel free to join me in them 
 𑣲 Main fandoms ; TSHD // CRK // Hetalia // Roblox YTers // Sanrio // DoL // K-On //
      PJSK // ARGs+Online Horror Series
 𑣲 Artist! My user is delphinusorb on everything!
